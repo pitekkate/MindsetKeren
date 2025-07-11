@@ -1,0 +1,2 @@
+# MindsetKeren
+Catatan kebaikan 
