@@ -1,1 +1,7 @@
-
+- Memiliki ketenangan
+- Memiliki ketelitian
+- Universalistik
+- Pribadi yang ang menyenangkan
+- Menimbulkan rasa aman
+- Tradisional 
+- Bersifat konformis (sesuai adat,norma, harapan kelompok sosial)
