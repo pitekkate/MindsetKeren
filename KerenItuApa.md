@@ -1,5 +1,5 @@
-- Extrovert: Memikirkan sesuatu untuk membagikan atau melakukan kepentingan/kebutuhan orang lain
-- Bersemangat:
+- Extrovert: Memikirkan sesuatu untuk membagikan atau melakukan kepentingan/kebutuhan orang lain,mudah bergaul,ramah,ekpresif
+- Bersemangat:ketika berada dalam keramaian 
 - Hedonis: Memikirkan sesuatu / mementing diri sendiri dalam hal positif
 - Kuat : Kuat metal pisik
 - Berpetualang: Senang ide/pikiran baru, keluar dari sesuatu yang ada di disekitar/dekat kita
